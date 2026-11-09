@@ -6,3 +6,6 @@ undena
 avi bags Ela tesuku Ravali entha sepu wait cheyyali 
 and chala 8 can you pls cm
 ok undu 3 k kada call kadu  left chey mari lagging all ok 8
+
+
+chala 8 
