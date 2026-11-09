@@ -8,4 +8,4 @@ and chala 8 can you pls cm
 ok undu 3 k kada call kadu  left chey mari lagging all ok 8
 
 
-chala 8 
+chala 8 2k ala adugu 3k ok undu present no problem mari food ela mom ni adugu niku ok na chupu nenu kada chala chala 88888 artham kaledu emi cheylu full headache no Power no all are there try to understand thinnu ela eating and doing ok na work from home 11 thisuko nenu vastha mari return vastha nenu inka group add cheyledu prayer chey for that 
