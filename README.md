@@ -13,3 +13,7 @@ chala 8 2k ala adugu 3k ok undu present no problem mari food ela mom ni adugu ni
 
 8 more 8 88 tc 8 7
 889999777777788⁸8hm tc 888
+
+
+
+birthday came ahh how are you
