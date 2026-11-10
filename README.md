@@ -26,7 +26,7 @@ hlo 7 emaindi ok na
 hlo tmr any interview walkin unda chudu or group add cheykuate ranu 
 
 
-
+hlo ok na tc sorry 8 see resume1 7
 
 
 
