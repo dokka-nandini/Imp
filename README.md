@@ -20,3 +20,6 @@ birthday came no  no pain also bye  don't msg me in WhatsApp hh how are you
 
 
 I am sorry ra full nidra bajjunnna
+
+
+hlo 7 emaindi ok na
