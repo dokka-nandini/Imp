@@ -16,4 +16,4 @@ chala 8 2k ala adugu 3k ok undu present no problem mari food ela mom ni adugu ni
 
 
 
-birthday came ahh how are you
+birthday came no  no pain also bye  don't msg me in WhatsApp hh how are you
