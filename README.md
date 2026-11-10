@@ -24,3 +24,72 @@ I am sorry ra full nidra bajjunnna
 
 hlo 7 emaindi ok na
 hlo tmr any interview walkin unda chudu or group add cheykuate ranu 
+
+
+
+
+
+
+I checked Bengaluru fresher walk-in listings for 10 November 2026.
+
+Potential opportunities
+
+### 1\. Software / IT walk-ins
+
+Appsource Services Pvt. Ltd. – Trainee Software Engineer
+
+* Eligibility: Freshers
+
+* Roles: Java Developer, Testing Engineer, Android Developer
+
+* Salary: ₹15,000–₹25,000/month
+
+* Walk-in: Monday–Friday, 9 AM–3 PM (listing; confirm before visiting)
+
+* Venue: No. 12, Ramanuja Plaza, 1st Floor, Malleshwaram 5th Cross, Bengaluru – 560003.
+
+* Contact: 9663863321
+
+Confirm vacancy before travelling[Check walk-in listing](https://in.indeed.com/q-walkin-interview-%2C-software-testing-fresher-l-bengaluru%2C-karnataka-jobs.html?vjk=2c9119d7e99c6d10&utm_source=chatgpt.com)
+
+Source: Indeed listing.
+
+Delta Software Solutions – Data Annotation Engineer
+
+* Eligibility: Freshers, 0–2 years
+
+* Salary: ₹2.5 LPA advertised
+
+* Location: HSR Layout
+
+* Walk-in dates: 2–4 November 2026
+
+Expired – do not visit[View details](https://walkinsinbangalore.in/delta-software-solutions-walk-in-interview-in-bangalore-for-data-annotation/?utm_source=chatgpt.com)
+
+### 2\. Other upcoming walk-in
+
+Sowparnika – QA/QC roles
+
+* Date: 13 November 2026
+
+* Venue: Kundalahalli, Brookefield
+
+* Roles: Senior QA/QC Engineer and Lab Technician.
+
+Source: Construction Job Find
+
+### 3\. Live walk-in search pages
+
+* [Walkins in Bangalore](https://walkinsinbangalore.in/?utm_source=chatgpt.com)
+
+* [Today's Bengaluru walk-ins](https://www.todaywalkin.com/jobs/in/bengaluru?utm_source=chatgpt.com)
+
+* [Bengaluru walk-in listings](https://onexjob.com/walkins/bangalore?utm_source=chatgpt.com)
+
+### Let me narrow the search
+
+Are these walk-ins for Nandini?
+
+I would prioritize Java Full Stack, MERN, React, Software Developer, QA Testing and DevOps — only genuine fresher opportunities, preferably paid full-time.
+
+ivi unnayi
