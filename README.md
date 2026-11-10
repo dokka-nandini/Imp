@@ -93,3 +93,8 @@ Are these walk-ins for Nandini?
 I would prioritize Java Full Stack, MERN, React, Software Developer, QA Testing and DevOps — only genuine fresher opportunities, preferably paid full-time.
 
 ivi unnayi ok leave it may be nenu ranu inka group add kada mari see in any walkin eu ec anna vallu unnara call appudu emi cheyli mari chepu m 8 m c 7 8 emi ayyidi chepu or msg chey anything about job and ur problem room ela
+
+
+
+
+adhey think chesthunna what to do ani 
