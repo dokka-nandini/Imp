@@ -100,4 +100,6 @@ ivi unnayi ok leave it may be nenu ranu inka group add kada mari see in any walk
 adhey think chesthunna what to do ani 
 niku ok ante undu no problem cook cheysukoatava room ok na chala better kada washroom unda nenu cheputha ma daddy ki daddy group lo add cheyledu ela vadu ley mari ani ok na vada ravala vada chepu nv dad ki cheytha
 
-came to pg to take luggage what to do now your dresses can I give to sneha
+came to pg to take luggage what to do now your dresses can I give to sneha no no no how time I said to don't call or msg anyone artham kada Neku
+na dress outside vey road ok na 
+petuko netho nenu vasthaka appudu thisokuanta ley smami ok bye gn 78
