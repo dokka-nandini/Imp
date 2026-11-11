@@ -103,3 +103,8 @@ niku ok ante undu no problem cook cheysukoatava room ok na chala better kada was
 came to pg to take luggage what to do now your dresses can I give to sneha no no no how time I said to don't call or msg anyone artham kada Neku
 na dress outside vey road ok na 
 petuko netho nenu vasthaka appudu thisokuanta ley smami ok bye gn 78
+
+
+
+arey swami came pg aa message nenna pettindi andhukey time to time chudali 
+nee dreesess safe aa ley 
