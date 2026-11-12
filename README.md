@@ -18,16 +18,7 @@ ok tc 7 gm bye 8
 
 birthday came no  no pain also bye  don't msg me in WhatsApp hh how are you
 
-
-I am sorry ra full nidra bajjunnna
-
-
-hlo 7 emaindi ok na
-hlo tmr any interview walkin unda chudu or group add cheykuate ranu 
-
-
-hlo ok na tc sorry 8 see resume1 7
-
+8 7 tc read 
 
 
 I checked Bengaluru fresher walk-in listings for 10 November 2026.
