@@ -67,7 +67,7 @@ Delta Software Solutions – Data Annotation Engineer
 Expired – do not visit[View details](https://walkinsinbangalore.in/delta-software-solutions-walk-in-interview-in-bangalore-for-data-annotation/?utm_source=chatgpt.com)
 
 ### 2\. Other upcoming walk-in
-
+ok Thintunna birthday came pls inform me 
 Sowparnika – QA/QC roles
 
 * Date: 13 November 2026
