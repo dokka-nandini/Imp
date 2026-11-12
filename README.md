@@ -100,3 +100,4 @@ petuko netho nenu vasthaka appudu thisokuanta ley smami ok bye gn 78
 arey swami came pg aa message nenna pettindi andhukey time to time chudali 
 no inka eu ok na
 nee dreesess safe aa ley 
+birthday Ela 
