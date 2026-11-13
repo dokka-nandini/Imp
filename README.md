@@ -4,3 +4,6 @@ may eveing 6 no birthday pain comeing backpain ok bye
 
 today i will come 
 tmr ante full cool ga undi so I am coming by bus at evening I will be there prayer tc reply take my lagging take or tmr take my lagging ok na 
+
+
+nenu TMR vallaki em cheppi Ravali nee luggage nathoney undhi
