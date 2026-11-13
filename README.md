@@ -7,3 +7,6 @@ tmr ante full cool ga undi so I am coming by bus at evening I will be there pray
 
 
 nenu TMR vallaki em cheppi Ravali nee luggage nathoney undhi
+
+
+hlo ok na 
