@@ -10,3 +10,15 @@ nenu TMR vallaki em cheppi Ravali nee luggage nathoney undhi
 
 
 hlo ok na 
+
+
+hlo ok na 7 
+birthday come pls inform me
+all ok 
+
+nuvvu a time ki puttav 
+ekkada puttav 
+
+
+birth time and birth place chepthava pls 
+maa annna adagamannadu
