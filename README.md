@@ -12,13 +12,14 @@ nenu TMR vallaki em cheppi Ravali nee luggage nathoney undhi
 hlo ok na 
 
 
-hlo ok na 7 
+hlo ok na 7 ok 77
 birthday come pls inform me
-all ok 
+all ok ok i will tell 
 
 nuvvu a time ki puttav 
-ekkada puttav 
+ekkada puttav Neku theliyadha na DOB 
 
 
 birth time and birth place chepthava pls 
-maa annna adagamannadu
+maa annna adagamannadu y don't need to do any pooja related because it agiat to me why nanna any problem 
+ok tc bye gn 
