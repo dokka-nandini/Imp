@@ -23,3 +23,17 @@ ekkada puttav Neku theliyadha na DOB
 birth time and birth place chepthava pls 
 maa annna adagamannadu y don't need to do any pooja related because it agiat to me why nanna any problem 
 ok tc bye gn 
+
+
+no ra no any puja 
+only chatgpt 
+
+he is asking just dob kadhu 
+a time ki puttav
+ekkada puttav ani 
+
+
+gandlaparthi birth place
+
+
+and time I need 
